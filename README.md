@@ -1,0 +1,2 @@
+# smart-deals-india
+🔥 BEST DEALS • TRENDING PRODUCTS • BUDGET SHOPPING 🔥
